@@ -1,0 +1,2 @@
+# Coyotes
+Coyotes Rugby
